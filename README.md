@@ -6,5 +6,3 @@
 </p>
 
 <p align="center">$\color{white}{\text{wip}}$</p>
-
-<p align="center">$\color{white}{\text{ }}$</p>
