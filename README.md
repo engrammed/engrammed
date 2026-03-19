@@ -1,11 +1,11 @@
 <p align="center">
-<img width="200" src="https://files.catbox.moe/hahjfw.gif" alt="1">
+<img width="200" src="https://files.catbox.moe/hahjfw.gif" alt="rebecca from edgerunners">
 </p>
 <p align="center">
-<img width="200" src="https://files.catbox.moe/c7zq79.gif" alt="2">
+<img width="200" src="https://files.catbox.moe/c7zq79.gif" alt="black and puerto rican">
 </p>
 <p align="center">
-<img width="100" src="https://files.catbox.moe/5c08ge.png" alt="3">
+<img width="100" src="https://files.catbox.moe/5c08ge.png" alt="transmasc and unlabeled">
 </p>
 <p align="center">
 <img width="100" src="https://api.visitorbadge.io/api/visitors?path=engrammed%2FREADME.md&label=visitors&labelColor=%23ffff00&countColor=%23ffffff">
