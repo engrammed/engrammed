@@ -15,5 +15,3 @@
     <img width="200" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
-<p align="center">sys info https://rentry.co/elcoyotecojo</p>
-<p align="center">ata https://elcoyotecojo.atabook.org/</p>
