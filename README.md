@@ -16,3 +16,7 @@
   </a>
 </p>
 <p align="center">(25/04/26) hi strawpage is outdated ok new discord user sage_h2137 if anything ok thx bye cyberpunk is peak btw</p>
+<p align="center">inactive in anything pt related in general still love everypony from here tho lol</p>
+<p align="center">
+<img width="200" src="https://files.catbox.moe/ppp8a8.gif" alt="mii headmate">
+</p>
