@@ -15,5 +15,5 @@
     <img width="200" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
-<p align="center">(26/4/2026) strawpage is outdated new discord user is sage_h2137 cyberpunk is peak</p>
-<p align="center">(26/5/2026) 17- do not interact</p>
+<p align="center">hi i have been extremely fixated on cyberpunk 2077 since 2023</p>
+<p align="center">strawpage is outdated, new discord user is sage_h2137, 17- do not interact</p>
