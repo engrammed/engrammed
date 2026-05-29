@@ -17,4 +17,4 @@
 </p>
 <p align="center">17- do not interact</p>
 <p align="center">hardcore cyberpunk 2077 fan since 2023</p>
-<p align="center">read my strawpage before you interact</p>
+<p align="center">check out my strawpage please please</p>
