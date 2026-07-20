@@ -1,5 +1,5 @@
 <p align="center">
-<img width="200" src="https://files.catbox.moe/t1pstz.gif" alt="rebecca from edgerunners">
+<img width="200" src="https://files.catbox.moe/1w7oec.gif" alt="rebecca from edgerunners">
 </p>
 <p align="center">
 <img width="100" src="https://api.visitorbadge.io/api/visitors?path=engrammed%2FREADME.md&label=nihilstics&labelColor=%23272727&countColor=%23ffffff">
