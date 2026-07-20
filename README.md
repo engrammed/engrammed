@@ -7,4 +7,5 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&redirect=true">
 </p>
-    <p align="center">not doing any rentry or strawpage stuff anymore just take the pronouns.page</p>
+<p align="center">17- dni</p>
+<p align="center">not doing any rentry or strawpage stuff anymore just take the pronouns.page</p>
