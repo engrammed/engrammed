@@ -7,5 +7,4 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&redirect=true">
 </p>
-<p align="center">17- dni</p>
-<p align="center">not doing any rentry or strawpage stuff anymore, just take the pronouns.page lol</p>
+<p align="center">hi i'm anti-zionism anti-trump anti-pedophilia anti-racism anti-queerphobia anti-transphobic-queers anti-system-exclusionism and the likes. thank you for caring to read my dni during these days.</p>
