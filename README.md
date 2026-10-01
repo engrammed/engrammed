@@ -7,4 +7,4 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&redirect=true">
 </p>
-<p align="center">#1 cyberpunk 2077 fan btw</p>
+<p align="center">type o negative ‎ ‎- ‎ ‎love you to death</p>
