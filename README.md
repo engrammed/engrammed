@@ -7,4 +7,4 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31bca253eufp4yb5qze2i3okekd4&redirect=true">
 </p>
-<p align="center">hi i'm anti-zionism anti-trump anti-pedophilia anti-racism anti-queerphobia anti-transphobic-queers anti-system-exclusionism and the likes. thank you for caring to read my dni during these days.</p>
+<p align="center">#1 cyberpunk 2077 fan btw</p>
